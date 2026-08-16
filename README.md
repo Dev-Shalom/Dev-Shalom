@@ -1,1 +1,1 @@
-August 16, 2026
+0\n\n---\nThis profile updates automatically every week.\n\
